@@ -1,5 +1,0 @@
-ssqqqqqqqqqq
-ssssss
-
-sssscc
-aaa
